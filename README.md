@@ -1,2 +1,0 @@
-# Socials
-Karan Socials
